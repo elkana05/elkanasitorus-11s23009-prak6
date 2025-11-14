@@ -1,0 +1,1 @@
+# elkanasitorus-11s23009-prak6
